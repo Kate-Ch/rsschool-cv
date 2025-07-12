@@ -7,7 +7,8 @@
 
 **E-mail:** katechernyakovaqwe@gmail.com<br>
 [LinkedIn](https://www.linkedin.com/in/katechernyakova/)<br>
-[Behance](https://www.behance.net/Kate_Chernyakova)
+[Behance](https://www.behance.net/Kate_Chernyakova)<br>
+[GitHub] (https://github.com/Kate-Ch)
 
 ---
 
